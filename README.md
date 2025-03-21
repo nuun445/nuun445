@@ -1,4 +1,4 @@
-## Hi there 👋just do what i need to do
+## Love Yourz
 
 <!--
 **nuun445/nuun445** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
